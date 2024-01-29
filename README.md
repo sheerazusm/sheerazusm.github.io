@@ -1,2 +1,0 @@
-# sheerazusm.github.io
-Portfolio
